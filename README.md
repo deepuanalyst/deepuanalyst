@@ -29,6 +29,10 @@ Passionate about Data Analytics, Business Insights & Visualization 📊
 - 📊 Building projects in **HR Analytics, Customer Churn & Business Intelligence**
 
 - 📫 How to reach me: **dda.deepusharma@gmail.com**
+  
+- 📳 Contact No.: **8285793084**
+  
+- 📑 My Resume: [**Deepu_Resume.pdf**](https://drive.google.com/file/d/1LluDvGimxxnxqiLg0WvJ8HxGC1P5l7dG/view?usp=sharing)
 
 - ⚡ Fun fact: **I enjoy creating a positive and energetic work environment**
 
