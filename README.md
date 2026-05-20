@@ -32,7 +32,7 @@ Passionate about Data Analytics, Business Insights & Visualization 📊
   
 - 📳 Contact No.: **8285793084**
   
-- 📑 My Resume: [**Deepu_Resume.pdf**](https://drive.google.com/file/d/1LluDvGimxxnxqiLg0WvJ8HxGC1P5l7dG/view?usp=sharing)
+- 📑 My Resume: [**Deepu_Resume.pdf**](https://drive.google.com/file/d/1o532dpOCE-poyDQnr0eoWzpa5C2p1mC-/view?usp=drive_link)
 
 - ⚡ Fun fact: **I enjoy creating a positive and energetic work environment**
 
